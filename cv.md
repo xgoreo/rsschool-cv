@@ -1,5 +1,5 @@
 # Olzhas Kairmukhambetov
-![photo](https://www.instagram.com/p/BgtCSjAnk2o/?utm_source=ig_web_copy_link)
+![photo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FTiger&psig=AOvVaw3C_aRFfL8Q4o6xl_qxlMix&ust=1641300132377000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCLC9vs3NlfUCFQAAAAAdAAAAABAD)
 ## Contacts:
 * kairmukhambetov@gmail.com
 * +7 771 461 77 88
